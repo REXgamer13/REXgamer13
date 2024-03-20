@@ -1,0 +1,4 @@
+- 👋 Hola, yo soy Juan Sebastian Gelvez Botia
+- 👀 Futuro Ing.de Sistemas
+- 🌱 Estudiante de la UDES
+- 📫 codigo: 02230131065
